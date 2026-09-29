@@ -1,0 +1,2 @@
+# premium-kuksa-001-kuksa-birch-burl-cup-carving-p
+Stop losing track of your kuksa carving stages and ruining precious birch burl with forgotten steps. This Notion template organizes your entire process from burl selection to final polish, so you never miss a critical drying time or sanding grit again.  The Kuksa Birch Burl Cup Carving Progress Tracker solves the chaos of multi-day projects by givi
